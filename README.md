@@ -6,3 +6,10 @@ bhbhbhbhb
 
 hbhbjbjb
 hjhbjh 
+adasd
+ss
+nowy tekst
+
+
+
+skettre
